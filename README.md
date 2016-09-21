@@ -18,6 +18,10 @@ Thời gian : 6h30PM Thứ 6 hàng tuần. Tại  [địa điểm](https://www.g
 > looking like it's been marked up with tags
 > or formatting instructions.
 
+
+# Hoạt động
+
+
 Chuẩn bị
   - Lên ý tưởng mới về bất cứ chủ đề nào,chuẩn bị nội dung , luyện nói..vd.kiếm mấy bài talk hay trên TED rồi lên presents , share kiến thức cho mọi ngừoi.
   
